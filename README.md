@@ -57,7 +57,7 @@
 ---
 
 ## 🌐 Connect With Me  
-📩 *Add your email or LinkedIn here later*
+📩 sujaldhar777@gmail.com
 
 ---
 
